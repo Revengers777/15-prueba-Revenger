@@ -12,4 +12,4 @@
 10. Capucha Roja (Jason Todd, en su etapa como villano)
 11. Killer Croc
 12. Mr. Freeze (Victor Fries)
-
+13. Tradwife or Badwife 
