@@ -1,3 +1,3 @@
 # Solicitud para entrar
 
-Aceptame, please
+Aceptame, por favor.
