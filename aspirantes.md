@@ -13,4 +13,3 @@
 11. Killer Croc
 12. Mr. Freeze (Victor Fries)
 13. Talia al Ghul
-
