@@ -13,5 +13,3 @@
 11. Killer Croc
 12. Mr. Freeze (Victor Fries)
 13. Talia al Ghul
-14. My satisfaction 
-15. 3am
