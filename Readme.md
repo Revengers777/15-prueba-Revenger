@@ -1,3 +1,3 @@
 # Notas
 
-Este es un repositorio prueba, para ver que sucede y si funciona.
+Este es un repositorio prueba, y esto va a salir muy mal.
