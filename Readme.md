@@ -1,5 +1,5 @@
 # Notas
 
-Este es un repositorio prueba, y esto va a salir muy mal.
+Este es un repositorio prueba.
 
 Prueba haber si esto funciona.
